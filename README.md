@@ -1,6 +1,6 @@
 ### Olá, Eu sou a Beatriz Amorim
 - 🎓 Bacharel em Comunicação Social e MBA em Comunicação Corporativa
-- 🌱 Atualmente estou cursando LEANI na CEFET-RJ
+- 🌱 Cursando LEANI na CEFET-RJ
 - 💬 Faço teatro, ballet, circo, canto coral e sou musicista. Além de pintar e desenhar nas horas vagas.
 - 📫 Instagram/Facebook: @beatrizlirim
 - ⚡ Trainee 2021.2 na CEFET Jr e Venturi Aerodesign. Voluntária na Assembleia de Deus- M.C, como gestora de eventos e social design.
